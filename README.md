@@ -1,3 +1,6 @@
 # Bad-Game
-Yo Waldemar I have game here
-yes yes yes
+Dear Waldemar
+I have the game here.
+Yes, yes and yes.
+
+Yours always - Frederik
